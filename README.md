@@ -1,2 +1,0 @@
-# loyiha1
-loyihqa
